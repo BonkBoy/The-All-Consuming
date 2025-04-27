@@ -1,6 +1,13 @@
 ---
-title: Welcome to Quartz
+title: The All Consuming
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+Welcome to the storyboard for The All Consuming.
+
+
+# Important Links
+[[Story]] - The story so far
+
+[[Aretina]] - The world you inhabit
+
+[[quartz/content/Story/History|History]] - The History of Aretina
