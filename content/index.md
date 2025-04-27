@@ -10,4 +10,4 @@ Welcome to the storyboard for The All Consuming.
 
 [[Aretina]] - The world you inhabit
 
-[[quartz/content/Story/History|History]] - The History of Aretina
+[[quartz/content/History|History]] - The History of Aretina
