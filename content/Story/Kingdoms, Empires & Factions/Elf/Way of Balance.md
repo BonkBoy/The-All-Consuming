@@ -1,0 +1,3 @@
+The Way of Balance is less a religion and more of a guiding philosophy on how to live your life in reverence to the [[Empyrean Pantheon]]. It encompasses worship of all 6 gods of the Pantheon, as the [[Elf|Elves]] believe that balance between the forces of nature is what keeps the world going. The High Shaman of [[Canopy]] is also the de-facto leader of the followers of the Way of Balance.
+
+More devout followers of the Way will carry effigies depicting the 6 aspects of [[The Perpetual Alchemy]] balanced within a circle.

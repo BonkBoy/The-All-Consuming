@@ -1,0 +1,3 @@
+A church dedicated to the worship of [[Empyrean Pantheon|Gomorrah]], the goddess of fire. Formed some time after control of Bastion was wrested from the [[Scaleshorn Empire]], as the Humans at the time believed they were blessed by the goddess of war. This set the tone for the Humans for some time to come, as they set about conquering more lands from the Scaleshorn Empire before the Treaty of Arcanum placed an uneasy peace across the land.
+
+They depict Gomorrah as a great warrior, brandishing a spear tipped with the claw of a dragon and a flaming battle standard.

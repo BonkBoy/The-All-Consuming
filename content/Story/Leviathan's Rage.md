@@ -1,0 +1,4 @@
+
+A brig commissioned by Commodore Flotsam to serve as a mobile base of operations. Manned by 30 men and captained by Deudermont Elias, it has 1 gun deck with 12 guns, 6 each side. Under the deck at the front of the ship, a compact living quarters is used as a barracks by the sailors, connected to a more roomy living space which was meant to house Commodore Flotsam, but since the ship has been commandeered by the group temporarily, it has been retrofitted into a living quarters for the group, with 6 bunks being moved in. In the middle of the ship, a small laboratory where Amber & Xenovia can conduct their studies is connected to a kitchen where the quartermaster prepares the crews meals. At the aft of the ship, the armoury can be found: cannonballs, muskets, cutlasses, and gunpowder barrels.
+
+20 x 30

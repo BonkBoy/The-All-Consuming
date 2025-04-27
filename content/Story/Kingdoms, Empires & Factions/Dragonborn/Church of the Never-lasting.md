@@ -1,0 +1,3 @@
+A church dedicated to the worship of [[Empyrean Pantheon|Temryava]], the goddess of death. This church formed not long after the dissolution of the [[Scaleshorn Empire]], headed by a group of religious [[Dragonborn]] that were disillusioned with the [[Church of the Final Dawn]]. The Never-lasting are not based in a temple like the Final Dawn, instead living their lives in line with their creed, and travelling to far and wide places to spread the good word and provide aid where they can. Anybody is free to join the Church.
+
+They do not depict Temryava in idols like the Final Dawn do, instead using the symbol of a Solar eclipse to denote their devotion to their goddess.

@@ -1,0 +1,1 @@
+Humans, in their Nascent years, were simple farmers, spread across the many grasslands of Lucan. This made them easy pickings for the burgeoning [[Scaleshorn Empire]], and they were quickly absorbed into the Empire. Humans are capable of anything they put their mind to: able to become great scholars, mages, merchants, adventurers or the like.

@@ -1,0 +1,1 @@
+Aretonic Crystals are Crystals found beneath the surface of [[Aretina]], which are uniquely capable of channelling the magical energies of Aretina.

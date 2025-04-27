@@ -1,0 +1,8 @@
+
+The Perpetual Alchemy is what scholars believe to be the building blocks of the universe. Millenia of research has gone into what causes the world to function as it does, and what little mortals can piece together paints a picture of a great machine: parts moving in tandem, pushing and pulling against each other, commanding the flow of energy throughout the universe and maintaining balance. They believe that this great machine is maintained by the 6 gods of the [[Empyrean Pantheon]], who originally created it to help give birth to [[Aretina]].
+
+===In actual fact, the Perptual Alchemy is a great machine, but the gods did not create it. Aretina is part of a much larger cosmos, but is cut off from the rest of the multiverse via means unknown. This means that whilst yes, the Perpetual Alchemy predates the creation of the world, it also predates the creation of the gods, and even they do not know for what purpose the machine is here. Each god has been given a part of the great machine to maintain, and it does so without question. However, every 10,000 years, the gods are compelled to harvest Aretina, and return its energy to the great machine, leading to the collapse of civilisation as it's known in that time period.===
+
+===The heart of the Perpetual Alchemy is actually a transcendent Time Dragon, which is used to keep track of the ongoing cycle, and helps regulate the 6 other gods. Stat block here: https://5e.tools/bestiary.html#ancient%20time%20dragon_mpp ===
+
+===Could maybe have the Time Dragon manifest itself in the world as a shapeshifted NPC, who is helpful towards the party?===

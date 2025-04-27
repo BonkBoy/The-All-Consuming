@@ -1,0 +1,3 @@
+A religion devoted to worshipping [[Empyrean Pantheon|Desmodus]], the god of earth. Desmodism has been the religion of the [[Dwarf|Dwarves]] for as long as they can remember, and not many who live outside of [[The Stone Fingers]] follow it. There will tend to be communal gatherings within the individual settlements to celebrate festivals & holidays associated with the religion.
+
+They depict Desmodus as a stout stone Dwarf wielding a great hammer, and believe he has blessed them with the ability to manipulate the earth around them.

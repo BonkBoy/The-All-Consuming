@@ -1,0 +1,3 @@
+A church dedicated to the worship of [[Empyrean Pantheon|Halcyon]], the god of life. Formed sometime after the creation of the [[Scaleshorn Empire]] as a symbol of the empire's eternal reign, the Church of the Final Dawn is a staple in the life of any [[Dragonborn]] who lives in [[Vakatow]]. Based out of the Temple of the All-Giving, they provide alms & prayer for those who need it, and aim to help those who wish to keep living.
+
+They depict Halcyon himself as a Great multi-coloured Wyrm and believe that he is responsible for seeding all life on Aretina.
