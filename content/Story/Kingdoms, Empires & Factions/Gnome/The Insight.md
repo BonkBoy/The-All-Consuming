@@ -1,1 +1,0 @@
-===The Insight is the Gnome's secret research facility located in the empty space between [[The Perpetual Alchemy]]. Here they work to unlock the secrets of the Perpetual Alchemy, hoping to master the natural world. It can be accessed from a waygate deep below [[Arcanum]], accessible to only the highest ranking members of the Guild of Runetronics.===
